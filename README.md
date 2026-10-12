@@ -11,3 +11,5 @@ INTRIVIA menjadi pengalaman yang seru dan berkesan karena bisa mengenal lebih ba
 ## Kesan Pesan Cluster 7 Sejauh Ini 
 Selama berada di Cluster 7, saya merasa senang karena bisa bertemu dengan teman teman baru yang asik dan saling mendukung.
 
+## Harapan Kuliah
+Semoga saya bisa mendapatkan banyak teman dan relasi selama perkuliahan, mendapatkan nilai yang terbaik di setiap matkul, dapat survive hingga kuliah selesai.
